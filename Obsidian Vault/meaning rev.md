@@ -53,9 +53,8 @@ CADENCE - STATE OF DECLINE , BALANCING ,
   
   
 FINESSE - SKILL IN HANDLING OR MANIPULATE OF A SITUATION , REFINEMENT , TO EVADE(GET AWAY, ESCAPE) A PROBLEM BY CLEVER SKILL  
-  
-  
-lauded - highly praised or admired:  
+
+LAUDED  - highly praised or admired:  
   
   
 poignant - evoking a keen sense of sadness or regret:  
