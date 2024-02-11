@@ -10,7 +10,7 @@ idyllic place or experience is extremely pleasant, beautiful, or peaceful
   
 RAMPANT - rearing(ACT OF RAISING YOUNG), rampage unrestrained(NATURAL ,UNCONTROLLED, INFORMAL), unrestrained in action or performance: VEHEMENT ,VIOLENT ,STRONG ,UPRIGHT (strictly honorable or honest), ERECT  
   
-  
+  veiled - hood (முக்காடு, வாகன முகடு)
 debacle - a sudden and ignominious failure; a fiasco:  
   
 stirring - causing excitement or strong emotion; rousing:  
